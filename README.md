@@ -1,4 +1,5 @@
-### Hi there 👋    ![image](https://github.com/gamzeyoldas/gamzeyoldas/assets/168271435/45974335-2caf-4044-a7ef-847053919050)
+### Hi there 👋    ![GAMZE YOLDAŞ](https://github.com/gamzeyoldas/gamzeyoldas/assets/168271435/875caae1-37e7-47df-8543-448f27adf629)
+
 
 
 <!--
