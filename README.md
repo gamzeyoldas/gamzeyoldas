@@ -1,4 +1,5 @@
-  ![gamze yoldaş11](https://github.com/gamzeyoldas/gamzeyoldas/assets/168271435/982f08a6-d94a-457e-8ba9-e619cf1cb128)
+  ![gamze yoldaş11](https://github.com/gamzeyoldas/gamzeyoldas/assets/168271435/ab716af1-268a-42d2-be9f-d2314656e2d3)
+
 
 
 
