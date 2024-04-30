@@ -1,4 +1,5 @@
- ![GAMZE YOLDAŞ](https://github.com/gamzeyoldas/gamzeyoldas/assets/168271435/875caae1-37e7-47df-8543-448f27adf629)
+ ![gamze yoldaş11](https://github.com/gamzeyoldas/gamzeyoldas/assets/168271435/982f08a6-d94a-457e-8ba9-e619cf1cb128)
+
 
 
 <h1 align="center">Hi 👋, I'm Gamze</h1>
